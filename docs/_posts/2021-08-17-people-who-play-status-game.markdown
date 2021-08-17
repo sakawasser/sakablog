@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "People who play status game is stupid"
+title:  "People who play status game"
 date:   2021-08-17 22:07:00 +0300
 categories: posts
 ---
