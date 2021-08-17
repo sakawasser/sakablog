@@ -9,3 +9,5 @@ I would choose decentralization. But most people don't. They use BSC. I use Ethe
 
 I know gas is too damn high but it is changing. Look at Optimism and Arbitrum.
 The future is bright.
+
+![](https://i.imgur.com/5OKnK2X.png)
