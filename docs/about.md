@@ -1,18 +1,20 @@
 ---
 layout: page
-title: About
+title: FAQ (Actually no one asked)
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
-
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
-
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
+#Why am I writing in English?
 
 
-[jekyll-organization]: https://github.com/jekyll
+To lessen the number of people who can read my blog.
+
+
+#Who am I?
+
+
+I don't know yet.
+
+
+
+
