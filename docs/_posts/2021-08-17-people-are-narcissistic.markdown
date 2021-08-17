@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "People are narcissistic"
+title:  "People who plays status game is stupid"
 date:   2021-08-17 22:07:00 +0300
 categories: posts
 ---
