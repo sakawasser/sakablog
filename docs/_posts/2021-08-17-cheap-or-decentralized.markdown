@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cheap or decentralized?"
-date:   2021-08-17 15:42:00 +0300
+date:   2021-08-17 21:52:00 +0300
 categories: posts
 ---
 
