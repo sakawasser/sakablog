@@ -17,8 +17,8 @@ title: being a pc in a video game
 email: ilhanakinserefoglu@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
   Poorly documented blog.
-baseurl: "" # the subpath of your site, e.g. /blog
-url: "" # the base hostname & protocol for your site, e.g. http://example.com
+baseurl: "/sakablog" # the subpath of your site, e.g. /blog
+url: "https://sakawasser.github.io" # the base hostname & protocol for your site, e.g. http://example.com
 github_username:  sakawasser
 
 # Build settings
