@@ -9,6 +9,6 @@ Science is a complex concept for most people and they don't know what it actuall
 When we use the word 'science' we refer to 'scientific method' which we use to find out the truth.
 
 
-If you believe scientific method is valid; you believe there is a thing called truth and there is a way to find it.
+If you believe scientific method is valid; you also believe that there is a thing called truth and there is a way to find it.
 
 
