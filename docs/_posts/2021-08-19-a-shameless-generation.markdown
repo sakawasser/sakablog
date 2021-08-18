@@ -22,4 +22,3 @@ Sometimes I ran out of words. How can they live with this stupidity?
 
 Don't they sit down and think? Even for a minute?
 
-They are doing their best to stop thinking.
