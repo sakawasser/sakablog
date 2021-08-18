@@ -9,4 +9,4 @@ The problem is the students optimize their lives in a way that will result in be
 
 
 And we all know that the exams are complete bullshit.
-They don't measure the knowledge or creativity.
+They don't measure knowledge or creativity.
