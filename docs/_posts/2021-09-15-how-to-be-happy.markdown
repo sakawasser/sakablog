@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "How to be Happy"
+title:  "How to be happy"
 date:   2021-09-15 19:45:00 +0300
 categories: posts
 ---
