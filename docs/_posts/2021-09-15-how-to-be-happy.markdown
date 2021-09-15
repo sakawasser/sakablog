@@ -6,7 +6,7 @@ categories: posts
 ---
 
 1. Be disciplined, do what you think you should do.
-2. Stop overthinking, don't plan a big battle just go guerila mode.
+2. Stop overthinking, don't plan a big battle just go guerilla mode.
 
 
 If these are not working for you, boost your testosterone. (if you are a male)
