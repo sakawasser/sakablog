@@ -26,7 +26,7 @@ Tıpkı Adem'in elmayı yedikten sonra bilinçlenmesi ve ardından pişman olmas
 
 
 Şimdi ise düşünsel olarak daha sağlam bir temelde oturduğumu söyleyebilirim. Son zamanlarda Yukio Mishima ve samuray kültüründen epey etkilendim ve strateji üzerine yaptığım okumalarımı hızlandırdım.
-Sun Tzu gibi büyük düşünürlerden içinde insan bulunan her olguda harbin kaçınılmaz olduğunu öğrendim. Savaşın her türlüsünde: fiziksel, sözel, psikolojik vb. uzmanlaşmayı kendime amaç bildim.
+Sun Tzu gibi büyük düşünürlerden içinde insan bulunan her olguda harbin kaçınılmaz olduğunu öğrendim. Savaşın her türlüsünde (fiziksel, sözel, psikolojik vb.) uzmanlaşmayı kendime amaç bildim.
 
 Yeryüzünde insan yaşamı savaşı andırmıyor mu? Günleri gündelikçinin günlerinden farklı mı? -Eyüp 7:1
 
