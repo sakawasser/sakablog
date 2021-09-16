@@ -17,8 +17,7 @@ ne topla,\
 ne de tüfekle...\
 Kardeşi kardeşe kırdırdılar, yemin olsun hiçbirini unutmadık.\
 Yanımıza Doğu'dan misafirler getirdiler sözde! Hepsi davetsiz bir avuç korkak!\
-İşlerimizi elimizden aldılar.\ 
-Kızlarımıza göz diktiler!\
+İşlerimizi elimizden aldılar. Kızlarımıza göz diktiler!\
 Biliyorum kardeşim, hislerini anlıyorum.\
 İşte buna bir son vereceğiz bugün.\
 Uykundan uyan artık.\
