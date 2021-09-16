@@ -22,8 +22,7 @@ Belâgat ve şiir ile çok kısa bir süre uğraştıktan sonra yönümü politi
 Sistemler üzerine okumalar yaptım, devlet adamlarını inceledim, toplum bilimiyle haşır neşir oldum ve belki bir psikologdan daha çok insanları anlar oldum.
 
 
-Tıpkı Adem'in elmayı yedikten sonra bilinçlenmesi ve ardından pişman olması gibi bu kadar çok bilgiyi özümsedikten sonra kısa bir süreliğine pişmanlık yaşadım. Çünkü daha mutlu değildim aksine mutsuzdum.
-Çünkü bu kadar yanlışı görmeme rağmen düzeltmeye yönelik hiçbir gücüm yoktu.
+Tıpkı Adem'in elmayı yedikten sonra bilinçlenmesi ve ardından pişman olması gibi bu kadar çok bilgiyi özümsedikten sonra kısa bir süreliğine pişmanlık yaşadım. Çünkü bu kadar yanlışı görmeme rağmen düzeltmeye yönelik hiçbir gücüm yoktu.
 
 
 Şimdi ise düşünsel olarak daha sağlam bir temelde oturduğumu söyleyebilirim. Son zamanlarda Yukio Mishima ve samuray kültüründen epey etkilendim ve strateji üzerine yaptığım okumalarımı hızlandırdım.
