@@ -9,8 +9,6 @@ Hislerinizi anlıyorum.\
 Yıllar süren bu aşağılanma, hepimizi hor gördüler.\
 Düşmanlarımız yetmedi, bu sefer kardeşlerimiz tarafından aşağılandık.\
 Kimi zaman dinimiz bahane edildi, kimi zaman ise dilimiz.\
-
-
 Onlar...\
 Topraklarımıza göz diktiler, onlara ağır geldi bu güzel vatan!\
 Yıkmaya karar verdiler!\
@@ -22,8 +20,6 @@ Yanımıza Doğu'dan misafirler getirdiler sözde! Hepsi davetsiz bir avuç kork
 İşlerimizi elimizden aldılar.\ 
 Kızlarımıza göz diktiler!\
 Biliyorum kardeşim, hislerini anlıyorum.\
-
-
 İşte buna bir son vereceğiz bugün.\
 Uykundan uyan artık.\
 Uykundan uyan.\
@@ -31,8 +27,6 @@ Uyan da gör bak ne olmuş kardeşlerine!\
 Hepsinin işleri ellerinden alınmış, evsiz bırakılmış.\
 Dinleri bozulmuş, kafaları karışmış.\
 Hepsi aşağılanmış.\
-
-
 Uyan artık kardeşim, bırak bu saçmalıkları!\
 Bırak artık siyaset denen aşağılık oyunları!\
 Sen kardeşim, çocuklarına bakacak bir anne, ailesi için ölecek bir baba.\
@@ -43,8 +37,6 @@ Hepinizi tanıyorum kardeşim, hislerini anlıyorum.\
 Onların aksine ben seninle aynı çeşmeden su içtim.\
 Onların aksine ben seninle aynı pide kuyruğunda bekledim.\
 Onların aksine ben seninle aynı gün güldüm, aynı gün ağladım.\
-
-
 Uyan artık kardeşim.\
 Hiçbir şeye ihtiyacımız yok, yanımızda kardeşlerimiz oldukça, aşılmayacak engel yok!
 
