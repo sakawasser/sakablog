@@ -20,7 +20,6 @@ So, stand up and DO AT LEAST 40 PUSHUPS!
 
 
 
-A motivation for you:
-https://www.youtube.com/watch?v=A82tRspSzKY
+[A motivation for you](https://www.youtube.com/watch?v=A82tRspSzKY)
 
 
