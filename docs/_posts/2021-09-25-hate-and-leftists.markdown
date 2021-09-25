@@ -12,3 +12,6 @@ This is why "hate" is the one forbidden thing on the left. They don't want you t
 
 
 Centrists will keep up a pretense of "rationality" when they should be filled with hate and rage for the destruction of love.
+
+
+![image](https://user-images.githubusercontent.com/81246115/134772674-256dcde8-86a9-4b0d-b6ba-c60e754c7287.png)
